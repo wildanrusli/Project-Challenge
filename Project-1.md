@@ -1,1 +1,0 @@
-Misal disini script coding
